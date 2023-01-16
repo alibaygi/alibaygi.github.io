@@ -1,1 +1,0 @@
-# alibaygi.github.io
